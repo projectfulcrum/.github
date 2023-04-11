@@ -1,1 +1,1 @@
-# .github
+# Launching soon :rocket:
